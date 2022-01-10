@@ -1,0 +1,1 @@
+pokemon is a game that is pretty litty.
